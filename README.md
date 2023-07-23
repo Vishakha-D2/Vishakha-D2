@@ -1,0 +1,5 @@
+- 👋 Hi, Githubian. You are seeing a learner profile
+- 👨🏻‍💻 I’m Vishakha, a passionate Data Analysis aspirant.
+- 👀 I'm interested in full-time Data analysis roles and internships.
+- 🌱 I’m currently learning and will keep learning ...
+- 📫 How to reach me ...www.linkedin.com/in/vishakha-dongre-6b0126203
